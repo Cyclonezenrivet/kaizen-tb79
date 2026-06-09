@@ -1,4 +1,4 @@
-
+advanced kaizen Scripts is the best kaizen Script, featuring auto-farm and silent aim. Safe and powerful for all your needs.
 
 
 
